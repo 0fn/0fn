@@ -1,4 +1,4 @@
-![Programming experience.](https://cdn.discordapp.com/attachments/815157178313736196/881454217024393266/c523442b8cc9a305e3dfa12d60857d8e.jpg)
+![Programming experience.](https://pbs.twimg.com/media/DhMmMeBW0AAk8BQ?format=jpg&name=large)
 
 ### Hi there 👋, HI , I'M AHMED.
 #### Programming experience.
